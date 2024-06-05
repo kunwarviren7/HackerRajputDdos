@@ -1,0 +1,4 @@
+telethon
+telebot
+requests
+flask
