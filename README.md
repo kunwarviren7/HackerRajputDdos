@@ -18,6 +18,7 @@ YT - https://youtube.com/@sharpshooterlite7
 
 
 HOW TO USE MY DDOS TOOL 🔥🔥
+All Game Support DDOS 🚩
 
 just Command EXAMPLE 
 
